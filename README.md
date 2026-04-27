@@ -1,0 +1,2 @@
+# Ask
+Tanya apa aja
